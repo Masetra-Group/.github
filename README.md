@@ -40,4 +40,4 @@ Currently serving pharmaceutical organizations across East Africa, with plans fo
 We're always interested in partnerships with pharmaceutical organizations, regulatory consultants, and technology partners.
 
 ---
-*© 2024 Masetra Ltd. All rights reserved.*
+*© 2025 Masetra Ltd. All rights reserved.*
